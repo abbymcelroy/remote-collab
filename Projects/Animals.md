@@ -51,3 +51,9 @@ Mama Bear and Baby Bear cuddle.
 ![Cat musicians](https://media.giphy.com/media/t7MWRoExDRF72/giphy.gif)
 
 Girl, put your records on.
+
+## Flamingos 
+
+![Baby Flamingo GIF](https://media.giphy.com/media/ygbGMpSxSkyo8/giphy.gif)
+
+A small _flamboyance_ of flamingoes :)
